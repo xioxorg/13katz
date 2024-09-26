@@ -4,4 +4,4 @@
 </h4>
 <h5 align="center">
 <p align> その思いやりが胸にしみてグットきたー! </p>
-<a href=https://rentry.co/kancho> about me </a>⠀<a href=https://gantz.atabook.org> message me </a>
+<a href=https://rentry.co/i11> about me </a>⠀<a href=https://gantz.atabook.org> message me </a>

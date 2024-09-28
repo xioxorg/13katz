@@ -4,4 +4,4 @@
 </h4>
 <h5 align="center">
 <p align> BELIEVE - SHIKURAMEN </p>
-<a href=https://rentry.co/i11> about </a>⠀<a href=https:/rentry.co/beigoma> friends </a>⠀<a href=https://gantz.atabook.org> message </a>
+<a href=https://rentry.co/i11> about </a>⠀<a href=https://rentry.co/beigoma> friends </a>⠀<a href=https://gantz.atabook.org> message </a>

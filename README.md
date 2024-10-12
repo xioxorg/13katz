@@ -4,5 +4,4 @@
 </h4>
 <h5 align="center">
 <p align> the drink (cup) - kobyshinobi </p>
-<p align> usually afk or offtab, sign rs/ata </p>
 <a href=https://rentry.co/kancho> about </a>⠀<a href=https://steamcommunity.com/id/katocha/> steam </a>⠀<a href=https://gantz.atabook.org> message </a>

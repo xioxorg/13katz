@@ -1,5 +1,5 @@
 <h4 align="center">
-<img src="https://static.wikia.nocookie.net/alien-stage/images/7/70/Ivan-icon.png/revision/latest/scale-to-width-down/250?cb=20240427193605"width="180" height="180" alt="w2e">
+<img src="https://lh3.googleusercontent.com/lepzZtPNWkro5ochRP9yWWkY_PdfNAKjXzwPqZ8eIuB_Vf6OPmBbKWmrfePaqB-E8uPnpWw4FeWZA-DZ=w2880-h1200-p-l90-rj"width="250" height="130" alt="w2e">
 <br>
 </h4>
 <h5 align="center">

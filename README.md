@@ -1,5 +1,5 @@
 <h4 align="center">
-<img src="https://miro.medium.com/v2/resize:fit:541/1*ARfV2FjHqZ3Tj4SP15OGYg.png"width="250" height="250" alt="sbr">
+<img src="https://www.fightersgeneration.com/news2023/char3/jojolion-gif3.gif"width="280" height="150" alt="sbr">
 <br>
 </h4>
 <h5 align="center">

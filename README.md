@@ -1,5 +1,5 @@
 <h4 align="center">
-<img src="https://pa1.aminoapps.com/6609/9915009118d3d24180dd401c23f67f6d436c97a7_hq.gif"width="280" height="140" alt="sbr">
+<img src="https://miro.medium.com/v2/resize:fit:541/1*ARfV2FjHqZ3Tj4SP15OGYg.png"width="250" height="250" alt="sbr">
 <br>
 </h4>
 <h5 align="center">

@@ -1,5 +1,5 @@
 <h4 align="center">
-<img src="https://www.fightersgeneration.com/news2023/char3/jojolion-gif3.gif"width="280" height="150" alt="sbr">
+<img src="https://static1.srcdn.com/wordpress/wp-content/uploads/2024/12/park-sung-hoon-as-hyun-ju-in-squid-game-season-2.jpg"width="300" height="160" alt="sbr">
 <br>
 </h4>
 <h5 align="center">

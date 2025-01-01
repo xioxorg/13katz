@@ -1,5 +1,5 @@
 <h4 align="center">
-<img src="https://media1.tenor.com/m/EkbCkzTDsp0AAAAC/chuckle-hyun-ju.gif"width="230" height="230" alt="unnie">
+<img src="https://www.dexerto.fr/cdn-image/wp-content/uploads/sites/2/2024/12/31/120-hyun-ju-squid-game-1024x576.jpg?width=1200&quality=75&format=auto"width="310" height="180" alt="unnie">
 <br>
 </h4>
 <h5 align="center">

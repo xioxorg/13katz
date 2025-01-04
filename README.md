@@ -1,5 +1,5 @@
 <h4 align="center">
-<img src="https://media1.tenor.com/m/GoM7xXKRiz8AAAAC/staring-front-man.gif"width="310" height="180" alt="unnie">
+<img src="https://static1.srcdn.com/wordpress/wp-content/uploads/2024/12/lee-jung-jae-as-gi-hun-in-squid-game-season-2.jpg"width="330" height="180" alt="me">
 <br>
 </h4>
 <h5 align="center">

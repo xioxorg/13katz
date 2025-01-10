@@ -1,9 +1,9 @@
 <h4 align="center">
-<img src="https://media1.tenor.com/m/58OOL_f57zcAAAAd/top-top-bigbang.gif"width="330" height="160" alt="me">
+<img src="https://static1.srcdn.com/wordpress/wp-content/uploads/2024/12/lee-jung-jae-as-gi-hun-in-squid-game-season-2.jpg"width="300" height="150" alt="me">
 <br>
 </h4>
 <h5 align="center">
   Han or Ken. I'm on here sometimes.
 <p align> I'm more likely to reply to PMs. </p>
   
-<a href=https://rentry.co/kancho> Rentry </a>⠀<a href=https://steamcommunity.com/id/katocha/> Steam </a>⠀<a href=https://neospring.org/@gantz> Message </a>
+<a href=https://rentry.co/gantz> Rentry </a>⠀<a href=https://steamcommunity.com/id/katocha/> Steam </a>⠀<a href=https://neospring.org/@gantz> Message </a>
